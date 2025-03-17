@@ -1,6 +1,6 @@
 Brandon Goodfried
 
-About Me
+
 Innovative problem solver with a passion for business strategy, sustainability, and global impact. As a student at the Carlson School of Management, I thrive at the intersection of business, technology, and environmental sustainability, bringing creativity and analytical thinking to every project.
 
 Interests & Expertise
